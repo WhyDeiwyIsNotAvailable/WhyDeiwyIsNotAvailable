@@ -24,5 +24,7 @@
 
 ---
 
+![Знімок екрана (5)](https://github.com/WhyDeiwyIsNotAvailable/WhyDeiwyIsNotAvailable/assets/96880594/97b2c753-845a-42e1-9124-95376fef0243)
+
 
 </p>
